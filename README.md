@@ -7,8 +7,14 @@
 </p>
 
 <div align="center">
- <p>he / him 🍕 c+h & w2i</p>
-  <p>🐻dis is my 2nd alt account🐻</p>
+ <p>he ✮ him 🍕 c + h & w 2 i</p>
+  <p>yu can call me ronnie or nick or tal .. dunno , check my prns . cc</p>
+</div>
+
+<div align="center">
+  <a href="https://prns.cc/juapk">ᵖʳⁿˢ</a> •
+  <a href="https://potatoslament.straw.page">ˢᵗʳᵃʷ</a> •
+  <a href="https://godheadsilo.atabook.org/">ᵃᵗᵃ</a>
 </div>
 
 
