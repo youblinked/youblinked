@@ -13,7 +13,7 @@
 
 <div align="center">
   <a href="https://prns.cc/juapk">ᵖʳⁿˢ</a> •
-  <a href="https://potatoslament.straw.page">ˢᵗʳᵃʷ</a> •
+  <a href="https://mechanlcalinstinct.straw.page">ˢᵗʳᵃʷ</a> •
   <a href="https://godheadsilo.atabook.org/">ᵃᵗᵃ</a>
 </div>
 
